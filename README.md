@@ -20,3 +20,4 @@ Felipe Antonio Costa – 5405182 - @felpcost - felpcost@gmail.com
 Renan Barbieri de Lima – 5405029 - @renan-barbieri – renan.barbieri@live.com
 Paulo Eduardo Berçot Serafim – 5404942 - @bercot01- eduardobercot@bol.com.br
 Rodrigo Muniz – 5404535 
+Entrega
