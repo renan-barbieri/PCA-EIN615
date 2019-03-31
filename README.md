@@ -24,6 +24,6 @@ Renan Barbieri de Lima – 5405029 - @renan-barbieri – renan.barbieri@live.com
 
 Paulo Eduardo Berçot Serafim – 5404942 - @bercot01- eduardobercot@bol.com.br
 
-Rodrigo Muniz – 5404535 
+Rodrigo dos Santos Muniz – 5404535 - rodrigomuniz1996 - rodrigomunizti@gmail.com
 
 Entrega
